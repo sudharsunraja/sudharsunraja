@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @sudharsunraja
+- 👀 I’m interested in writing
+- i'm currently working as an architect
+- 🌱 I’m currently learning Business Analytics and Digital Marketing
+- 💞️ I’m looking to collaborate on google 
+- 📫 How to reach me sudharsunraja@gmail.com
+- 😄 Pronouns: HE/HIS
+- ⚡ Fun fact: i almost spend more than 2 hrs in social media 
